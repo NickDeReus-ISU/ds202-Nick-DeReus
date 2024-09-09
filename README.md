@@ -2,7 +2,7 @@
 ode to an academic advisor
 
 ## A Crappy
-Accidently set the wrong time for morning alarm on the second day of class
+I accidently set the wrong time for morning alarm on the second day of class, so I woke up almost an hour late.
 
 ## A Happy
-Nothing in particular, just enjoying being back in school.
+I'm just enjoying being back in school my classes and professors are interesting and my classmates are cool.
