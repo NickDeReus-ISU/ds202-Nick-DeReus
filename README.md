@@ -1,4 +1,4 @@
-# ds2020-Nick-DeReus
+# ds202-Nick-DeReus
 ode to an academic advisor
 
 ## A Crappy
